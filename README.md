@@ -1,4 +1,4 @@
-### Hi there 👋
+### Ming Tat (Thomas) WOO, OPS445-NEE
 
 <!--
 **mwoo12/mwoo12** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
